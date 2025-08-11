@@ -10,4 +10,6 @@
 * Then after that Dr. Harpreet kaur grewal Mam The HOD of Applied Sciences Deptt., gives us a valuable speech and motivation for completing our degree with proper learning skills and overall development.
 * Then Dr.Akshay girshar tells us about extra co-curricular activities,Dr. Parminder Singh tells us about Child welfare Deptt.
 * After that Our Respected Principal Dr. Sehajpal Singh tells us about cse Branch, after that welcoming and congratulating students.
-* After that
+* After that Dr. kulwinder Singh, HOD of IT Department congratulate students and told us about IT Branch.
+* Then our Respected Principal Sir given honour to our chief guest, Ashok Singla Sir, A Finance Advisor.
+* At last Our Principal sir given honour to Assistant deputy commissioner of ludhiana  
