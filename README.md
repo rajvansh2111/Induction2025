@@ -12,4 +12,5 @@
 * After that Our Respected Principal Dr. Sehajpal Singh tells us about cse Branch, after that welcoming and congratulating students.
 * After that Dr. kulwinder Singh, HOD of IT Department congratulate students and told us about IT Branch.
 * Then our Respected Principal Sir given honour to our chief guest, Ashok Singla Sir, A Finance Advisor.
-* At last Our Principal sir given honour to Assistant deputy commissioner of ludhiana  
+* At last Our Principal sir given honour to Assistant deputy commissioner of ludhiana Mr. kesh kumar, who was pass out of 1991 batch from this college.          ## Second Day
+#### 
