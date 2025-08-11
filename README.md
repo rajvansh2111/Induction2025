@@ -5,4 +5,5 @@
 #### 10:00-10:30 AM.
 * There is tea snacks for students and after taking refreshment we all move to auditorium.
 #### 11:30-1:00 PM.
-* Then college induction program started 
+* Then college induction program started a5 about 11:00 AM.
+* Firstly
