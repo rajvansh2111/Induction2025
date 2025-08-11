@@ -9,5 +9,5 @@
 * Firstly we were shown the videos of aluminis who appreciated us a lot for our college and journey and carrier
 * Then after that Dr. Harpreet kaur grewal Mam The HOD of Applied Sciences Deptt., gives us a valuable speech and motivation for completing our degree with proper learning skills and overall development.
 * Then Dr.Akshay girshar tells us about extra co-curricular activities,Dr. Parminder Singh tells us about Child welfare Deptt.
-* After that Our Respected Principal Dr. Sehajpal Singh tells us about cse Branch with welcoming and congratulating students.
+* After that Our Respected Principal Dr. Sehajpal Singh tells us about cse Branch, after that welcoming and congratulating students.
 * After that
